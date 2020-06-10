@@ -1,0 +1,2 @@
+# -Top-Geer-Wraps
+With over 17 years in the industry of wrapping and protecting high-end and exotic vehicles, Top Geer Wraps is hands down the leader in paint protection film solutions, full vinyl wraps and automotive window tinting. Our goal is to offer the best service possible at the best possible price. We have a fantastic boutique retail location in the heart of the GTA for easy access from anywhere in the city. 
